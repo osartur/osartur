@@ -1,1 +1,1 @@
-![alone cat](https://tenor.com/pt-BR/view/cat-kiss-gif-26499778)
+![no idea](https://github.com/arthursemh/arthursemh/blob/main/pixel-art.gif)

@@ -1,5 +1,3 @@
-# Hi!
-
 ![no idea](https://github.com/arthursemh/arthursemh/blob/main/pixel-art.gif)
 
-Bye.
+Learning programming in my room since the pandemic

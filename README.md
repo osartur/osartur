@@ -1,3 +1,3 @@
-![no idea](https://github.com/arthursemh/arthursemh/blob/main/pixel-art.gif)
+![CDD](https://github.com/arthursemh/arthursemh/blob/main/20230801_003159.gif)
 
 Learning programming in my room ☕

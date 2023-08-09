@@ -1,6 +1,6 @@
 # Oi;
 
-![CDD](https://github.com/arthursemh/arthursemh/blob/main/cdd.gif)
+![CDD](https://github.com/arthursemh/arthursemh/blob/main/20230801_003159.gif)
 
 <p>
     <a href="https://youtube.com/@osartur" target="_blank" rel="noreferrer"> 
